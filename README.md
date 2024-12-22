@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # 💫 About Me:
 🔭 I’m currently working on PT. Mencari Cinta Sejati<br>🤝 I’m looking for help with Progamming<br>🌱 I’m currently learning Survival<br>💬 Ask me about My Life, I Guess so XD<br>⚡ Fun fact 
 
