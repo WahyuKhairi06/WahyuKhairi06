@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on PT. Mencari Cinta Sejati<br>🤝 I'm looking for help on how to find someone to love<br>🌱 I’m currently learning How to Survive this loneliness😭<br>💬 Ask me about My Life, I Guess so XD<br>⚡ Fun fact ? u have any idea?
+🔭 I am currently studying at Andalas University<br>🤝 I am looking for help on how to find someone to Teach me to make money <br>🌱 I'm currently learning How to Survive in My Major😭<br>💬 Ask me about My Life <br>⚡ Fun fact ? u have any idea?
 
 
 ## 🌐 Socials:
