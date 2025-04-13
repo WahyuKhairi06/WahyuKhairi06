@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I am currently studying at Andalas University<br>🤝 I am looking for help on how to find someone to Teach me to make money <br>🌱 I'm currently learning How to Survive in My Major😭<br>💬 Ask me about My Life <br>⚡ Fun fact ? u have any idea?
+🔭 I am currently studying at Andalas University<br>🤝 I am looking for help on how to find someone to Teach me to make money <br>🌱 I'm currently learning How to be Good Person<br>💬 Ask me about My Life <br>⚡ Fun fact ? u have any idea?
 
 
 ## 🌐 Socials:
